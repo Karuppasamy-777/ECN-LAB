@@ -28,6 +28,20 @@
 
 
 
+![WhatsApp Image 2025-10-24 at 12 49 04_cadbcd83](https://github.com/user-attachments/assets/3039491e-60d0-4ea0-81a8-c935a7e8c65d)
+
+**THEORETICAL CALULATION:**
+![WhatsApp Image 2025-10-24 at 12 49 18_459d107b](https://github.com/user-attachments/assets/374875b3-58f5-4882-b7a0-41ff18702180)
+![WhatsApp Image 2025-10-24 at 12 49 19_9aed9072](https://github.com/user-attachments/assets/a3c8bb32-e331-43d0-bfca-755cebf8940c)
+
+**OBSERVATION TABLE:**
+![WhatsApp Image 2025-10-24 at 12 49 19_202a986d](https://github.com/user-attachments/assets/9e788f4a-2e1f-4fb2-ae19-f11b23c9704d)
+
+
+
+**MARKS SPLITUP:**
+![WhatsApp Image 2025-10-24 at 12 49 24_a3108aa3](https://github.com/user-attachments/assets/3c890c40-92d8-4280-80f0-9a1ce6458cb9)
+
 
 
 
